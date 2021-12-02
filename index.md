@@ -3,6 +3,6 @@
 **They should be here, but that great and sacred union has long since disappeared.**
 ![CPSU IMAGE](https://upload.wikimedia.org/wikipedia/commons/f/fe/%D0%9A%D0%9F%D0%A1%D0%A1.svg)
 
-Learn more on [Wikipedia](https://en.wikipedia.org/wiki/Communist_Party_of_the_Soviet_Union)
-
-All rights reserved kncc.su. 2021-2021
+Learn more on [Wikipedia](https://en.wikipedia.org/wiki/Communist_Party_of_the_Soviet_Union).
+ 
+###### Contact:Gurayuki@kncc.su or [Github](https://github.com/sovietball).
