@@ -6,3 +6,5 @@
 Learn more on [Wikipedia](https://en.wikipedia.org/wiki/Communist_Party_of_the_Soviet_Union).
  
 ###### Contact:Gurayuki@kncc.su or [Github](https://github.com/sovietball).
+
+[简体中文](https://www.kncc.su/cn)
