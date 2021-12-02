@@ -5,6 +5,6 @@
 
 在[维基百科](https://zh.wikipedia.org/wiki/苏联共产党)阅读更多。
  
-###### 联系我:Gurayuki@kncc.su 或者 [Github](https://github.com/sovietball)。
+###### 联系我： Gurayuki@kncc.su 或者 [Github](https://github.com/sovietball)。
 
 [English](https://www.kncc.su)
